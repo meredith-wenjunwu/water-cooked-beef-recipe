@@ -54,13 +54,13 @@ Salt
 
 4. If your beef slice is really thin, no need to marinate. Just cook it like shabu shabu (don't overcook). If it's somewhat a little thick, you can marinate for about 15 min with oil, an egg, 2 tsp of soysauce, some sugar, salt,  2 tbsp of corn starch and some white pepper. Again, cook it like shabu shabu and put it on top of the vegetables. 
 
-   ![image-20181031124611740](./pepper.jpeg)
-
 5. Heat your wok, put some oil. I usually wait till the point that I put my hand about 2 fist away I can feel the heat but not burning. Then, add szechuan pepper, and switch to medium heat. Fry till you can smell the scent from those peppers. 
+
+   ![image-20181031124611740](./pepper.jpeg)
 
    Here, I throw them out, but you could leave them there. 
 
-4. Then, put in garlic slices, ginger and the white part of the green onion. Fry till the garlic turning gold but not brown.
+6. Then, put in garlic slices, ginger and the white part of the green onion. Fry till the garlic turning gold but not brown.
 
 ![image-20181031115923788](./spices.jpeg)
 
