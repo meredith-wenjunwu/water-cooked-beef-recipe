@@ -60,7 +60,7 @@ Salt
 
    Here, I throw them out, but you could leave them there. 
 
-4. Then, put in garlic slices, ginger and the white part of the green onion. Fry till you can the garlic turning gold but not brown.
+4. Then, put in garlic slices, ginger and the white part of the green onion. Fry till the garlic turning gold but not brown.
 
 ![image-20181031115923788](./spices.jpeg)
 
